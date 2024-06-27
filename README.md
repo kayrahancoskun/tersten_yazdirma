@@ -1,0 +1,1 @@
+# tersten_yazdirma
